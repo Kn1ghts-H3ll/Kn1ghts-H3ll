@@ -1,17 +1,21 @@
- ‎<p align="center"> <ins> <img src="https://i.postimg.cc/SRwFMT3d/Paint-pictures.png">
+<p align="center"> BIG WIP REDOIN THIS!! </p>
+
+ ‎<p align="center"> <ins> <img width="326" height="201" alt="image" src="https://i.pinimg.com/736x/f5/da/50/f5da50eddd805e83cdc0fdbd419ab529.jpg">
 
 <p> </p>
 
-<p align="center"> Yo im Knight or Neon. </p>
+<p align="center"> NAME : Kinght / Neon </p>
+<p align="center"> PRONOUNS : He/She/It </p>
 <p align="center"> ━╂ </p>
-<p align="center"> I enjoy horror, args, Knights, and many other things.  </p>
-
- ‎<p align="center"> <ins> <img width="226" height="401" alt="image" src="https://i.postimg.cc/k4LR29MX/Untitled.png" /> 
-
- <p></p>
+<p align="center"> I'm a big fan of anything horror related. I also enjoy cars, dinos, kinghts, and many otherr things!!  </p>
 
 <p align="center"> No Dni list I block freely. </p>
 <p align="center"> ━╂ </p>
+
+ ‎<p align="center"> <ins> <img width="526" height="201" alt="image" src="https://i.pinimg.com/736x/2b/8e/3b/2b8e3b69b077874b316486fd312491e4.jpg" /> 
+
+ <p></p>
+
 
 
 <!--
