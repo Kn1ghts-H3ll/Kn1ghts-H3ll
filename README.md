@@ -7,12 +7,12 @@
 <p align="center"> NAME : Kinght / Neon </p>
 <p align="center"> PRONOUNS : He/She/It </p>
 <p align="center"> ━╂ </p>
-<p align="center"> I'm a big fan of anything horror related. I also enjoy cars, dinos, kinghts, and many otherr things!!  </p>
+<p align="center">   </p>
 
 <p align="center"> No Dni list I block freely. </p>
 <p align="center"> ━╂ </p>
 
- ‎<p align="center"> <ins> <img width="526" height="201" alt="image" src="https://i.pinimg.com/736x/2b/8e/3b/2b8e3b69b077874b316486fd312491e4.jpg" /> 
+ ‎<p align="center"> <ins> <img width="150" height="40" alt="image" src="https://64.media.tumblr.com/8c1c49b53ce261d973c91e47b1c6f524/3558b906d3e28e70-b5/s250x400/121c8f1e34601de509bc8d1964250f7e23c5a7ab.gifv" /> 
 
  <p></p>
 
